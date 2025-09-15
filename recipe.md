@@ -12,8 +12,6 @@
 ## Instructions:
 1. Preheat the oven to 375°F (190°C).
 2. In a large bowl, whisk together the flour, sugar, cocoa powder, and ground cinnamon.
-1. Preheat the oven to 350°F (175°C).
-3. ...
 
 ## Additional Directions by Bob:
 4. Add a tablespoon of instant coffee to the dry ingredients for a hint of mocha flavour.
